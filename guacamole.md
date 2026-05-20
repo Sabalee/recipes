@@ -3,7 +3,7 @@
 ## Ingredients
 
 - 2 Avocado
-- 1 Lemon
+- 1 Lime
 - Salt
 - Chili
 
